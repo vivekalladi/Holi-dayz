@@ -1,1 +1,1 @@
-# Holi-dayz
+# Holi-days
